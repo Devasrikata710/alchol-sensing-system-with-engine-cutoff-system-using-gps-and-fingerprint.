@@ -80,3 +80,4 @@ The system is designed to:
 Looking forward to applying these learnings to even more impactful innovations!
 
 ---
+"C:\Users\dhatr\OneDrive\Desktop\working model-1.jpg"
